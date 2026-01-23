@@ -1,6 +1,6 @@
 # Hi, I'm Liz 👋
 
-I'm a **Head of Brand & Communications** at HappyStep Labs with a strong background in **strategy, content, and digital presence**, and a **final-year Speech Therapy (Speech-Language Pathology) student** — currently completing my **last supervised practical training**.
+I'm a **Head of Brand & Communications** at **HappyStep Labs** with a strong background in **strategy, content, and digital presence**, and a **final-year Speech Therapy (Speech-Language Pathology) student** — currently completing my **last supervised practical training**.
 
 I work at the intersection of **communication, design, and human-centered thinking**, combining creativity with structure and evidence-based approaches.
 
